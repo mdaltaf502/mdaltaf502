@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mdaltaf502
+- 👀 I’m interested in software developer
+- 🌱 I’m currently learning web development and android development
+- 💞️ I’m looking to collaborate on potential podcast
+- 📫 How to reach me mdaltaf74951141
